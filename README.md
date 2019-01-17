@@ -1,0 +1,1 @@
+# Variability-in-the-Atmosphere-of-the-Hot-Jupiter-Kepler-76-b
